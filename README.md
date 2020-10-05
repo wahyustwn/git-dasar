@@ -1,5 +1,7 @@
 # git-dasar
 
 - Wahyu Ganteng Is Here
-- Raihan ( Tukang )
-- Fauzan ( Kuli )
+- GAnteng Banget
+- Ganteng ASli
+- Ganteng Anjay
+
